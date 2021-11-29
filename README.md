@@ -1,1 +1,0 @@
-# ANavarroASIX.github.io
